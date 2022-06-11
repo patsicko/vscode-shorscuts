@@ -1,4 +1,4 @@
-![Screenshot from 2022-06-11 06-46-33](https://user-images.githubusercontent.com/63926982/173173107-df86e069-d5f2-4f36-bafa-aa37c160e161.png)
+![Frame 14](https://user-images.githubusercontent.com/63926982/173173248-68dfd504-86d7-4f17-8dfc-094a80b870df.png)
 
 ![Screenshot_20220611-052628](https://user-images.githubusercontent.com/63926982/173173116-6642d9cb-bb6a-480c-8e86-6d5c8f39a64d.png)
 ![Screenshot_20220611-052638](https://user-images.githubusercontent.com/63926982/173173121-732bea51-35b9-412d-bfc6-1a9a73ec1c65.png)
